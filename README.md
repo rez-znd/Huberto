@@ -3,3 +3,4 @@
 
 Editado durante a aula
 Verdade
+Os caras perderam a mão no filme Halloween.
